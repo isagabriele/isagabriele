@@ -1,6 +1,6 @@
 ## 💜 Olá, meu nome é Isa Gabriele!
 
-👩🏻‍💻 Estudante de Ciencias da Computação
+👩🏻‍💻 Estudante de Ciência da Computação
 
 💼 Atualmente trabalhando como análista de suporte
 
